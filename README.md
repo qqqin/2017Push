@@ -1,2 +1,6 @@
 # 2017Push
-She knows nothing?
+She knows nothing
+Hi Strangers!
+This is a girl who knows nothing about coding...
+She joined in this group as accidental.
+And maybe there will be something new born...
